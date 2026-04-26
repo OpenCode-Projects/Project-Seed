@@ -1,5 +1,4 @@
-<img width="1983" height="793" alt="ChatGPT Image Apr 26, 2026, 04_08_58 PM" src="https://github.com/user-attachments/assets/143cf2ae-f901-456e-b6e3-5a096d0c035f" />
-
+<img width="1774" height="887" alt="ChatGPT Image Apr 26, 2026, 04_12_09 PM" src="https://github.com/user-attachments/assets/dd8fa4ab-502a-4bea-8fdc-4976353a9b64" />
 
 ## Seed’s Primary Goal (The One True Objective):
 
